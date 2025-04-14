@@ -18,7 +18,7 @@
   <p>
     Our fleet of 
     <a href="https://www.brothersgas.com/exports/">ISO tanks for rent</a> is designed to handle a wide variety of liquefied gases, such as 
-    <a href="https://www.brothersgas.com/exports/">argon</a>, helium, nitrogen, and other specialty gases. These 
+    argon, helium, nitrogen, and other specialty gases. These 
     <a href="https://www.brothersgas.com/exports/">argon ISO tanks</a> ensure secure and efficient storage and transportation, making them an ideal solution for businesses needing bulk gas supply with international safety standards.
   </p>
 
